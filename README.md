@@ -27,4 +27,4 @@
 结语  
 通过选择正规、安全的在线视频平台，观众可以享受最好的观影体验，高清画质、无广告播放、丰富的资源分类和灵活的下载功能都使得这些平台成为观众的理想选择。  
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/ron676577/javrb15 )</span>
